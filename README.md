@@ -1,4 +1,4 @@
-## i go by kita
+## yo
 
 portfolio coming soon!!!
 
